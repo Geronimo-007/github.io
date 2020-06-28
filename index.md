@@ -7,3 +7,5 @@ Brahmsy is a boy, well actually a doll. No, no, wait, wehen I'm thinking about t
 * Quite old
 * Quite strong
 * Loves music
+
+> Fun to be scared
