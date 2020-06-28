@@ -8,7 +8,7 @@ Brahmsy is a boy, well actually a doll. No, no, wait, when I'm thinking about th
 * Quite strong
 * Loves music
 
-> Fun to be scared?!
+> Fun to be scared?
 > Who buries a doll?
 
 <img src="https://www.filmfutter.com/wp-content/uploads/2019/01/TheBoy2Drehstart-696x383.jpg"/>
